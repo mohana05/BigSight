@@ -85,7 +85,7 @@ We may update this Privacy Policy from time to time. Any changes will be reflect
 
 If you have any questions or concerns about this Privacy Policy or BigSight's privacy practices, please contact us at:
 
-**Email:** [your-email@example.com]
+**Email:** [mrrmfamily2022@gmail.com]
 
 ---
 
